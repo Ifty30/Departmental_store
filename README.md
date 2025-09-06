@@ -1,0 +1,1 @@
+this is my departmental store.Anyone can buy something from here.
